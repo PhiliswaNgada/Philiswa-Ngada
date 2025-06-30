@@ -61,7 +61,7 @@ I’m excited to grow as a professional in roles such as:
 
 ## Connect With Me
 - [LinkedIn](https://linkedin.com/in/yourprofile)
-- 📧 Email: your.email@example.com
+- 📧 Email: ngadaphiliswa@gmail.com
 - [Portfolio](https://yourportfolio.com)
 
 ---
