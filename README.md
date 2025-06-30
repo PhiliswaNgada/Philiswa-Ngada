@@ -60,7 +60,7 @@ I’m excited to grow as a professional in roles such as:
 ---
 
 ## Connect With Me
-- [LinkedIn](https://linkedin.com/in/yourprofile)
+- [LinkedIn](https://za.linkedin.com/in/philiswa-ngada-76379a197)
 - 📧 Email: ngadaphiliswa@gmail.com
 - [Portfolio](https://yourportfolio.com)
 
